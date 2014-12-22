@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-An Anſwer vnto my lord of wyncheſters booke intytlyd a detection of the deuyls Sophiſtrye wherwith h
+
 1. Iohan Hoper wyſhythe grace and the yefftes of the holy Gooſte unto my lord of wyncheſter.
 
 #####Body#####
